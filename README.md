@@ -1,1 +1,1 @@
-# escorde.github.io
+# escorde.com
